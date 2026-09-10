@@ -17,7 +17,7 @@
 - **2 tablespoons** fresh lemon juice
 - **1 teaspoon** honey or maple syrup (adjust to taste)
 - **1 small clove** garlic, minced
-- **Salt and pepper** to taste
+- **Salt, pepper and Mediterranean Spices** to taste
 
 
 ## Instructions
